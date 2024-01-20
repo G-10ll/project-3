@@ -13,6 +13,9 @@ https://miro.com/app/board/uXjVN3DRHKs=/ 2
 
 
 
+https://bulldozer26.ru/trenery.html образец сайта
+
+
 
 
 

@@ -6,10 +6,10 @@
 4) О рабочем составе? - имена тренеров и их фотографии.
 5) Регистрация и авторизация? - ФИО, email, телефон и дата рождения.
 
-https://miro.com/app/board/uXjVN3DAgo4=/ 
+https://miro.com/app/board/uXjVN3DAgo4=/ 1
 
 
-
+https://miro.com/app/board/uXjVN3DRHKs=/ 2
 
 
 
